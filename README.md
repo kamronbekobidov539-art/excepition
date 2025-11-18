@@ -1,0 +1,2 @@
+# excepition
+vazifalar uchun
